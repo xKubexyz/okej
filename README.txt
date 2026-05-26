@@ -3,3 +3,5 @@ polski trudny jest
 dżem dobry
 nowe coś
 okok
+idk idk 
+nowa linijka
